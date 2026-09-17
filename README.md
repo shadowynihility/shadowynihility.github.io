@@ -1,1 +1,0 @@
-# shadowynihility.github.io
